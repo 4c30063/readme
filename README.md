@@ -1,6 +1,6 @@
 * Heya, I’m moon.
-_ I’m interested in Parkour/Freerun and Coding.
-_ I’m currently learning JavaScript.
+* I’m interested in Parkour/Freerun and Coding.
+* I’m currently learning JavaScript.
 > Thanks for look! ;)
 
 
