@@ -5,6 +5,8 @@
 
 [Twitter](https://twitter.com/mo0ned23) -
 [Facebook](https://www.facebook.com/profile.php?id=100076505124626) -
-[Discord](dsc.bio/moonsilence)
+[Discord](https://discords.com/bio/p/moonsilence)
 
 İf u want to gimme a coffe: [buymeacoffe](https://www.buymeacoffee.com/mooned)
+
+/ - \ ^
