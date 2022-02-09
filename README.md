@@ -8,7 +8,7 @@
 **[Discord](https://discords.com/bio/p/bobu)** -
 **[YouTube](https://www.youtube.com/channel/UCmnvNIjeXMEz6Hiyzae9mwg)**
 
-İf u want to buy me a coffe: [buymeacoffe](https://www.buymeacoffee.com/mooned)
+İf u want to buy me a coffe: [buymeacoffe](https://www.buymeacoffee.com/bobu)
 
 ^^
 
