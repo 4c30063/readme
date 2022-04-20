@@ -1,6 +1,6 @@
 * Heya, I’m mo0n.
-* I’m interested in Parkour/Freerun and Coding.
-* I’m currently learning JavaScript.
+* I’m interested in Coding.
+
 > Thanks for look! ;)
 
 **[Twitter](https://twitter.com/mo0n_rd)** -
