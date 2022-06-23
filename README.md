@@ -6,7 +6,7 @@
 
 İf u want to buy me a coffe: [buymeacoffe](https://www.buymeacoffee.com/mo0n)
 
-> ^^
+> 🍓❤️ merisna
 
 - ───▌─▌─────▐─▐───
 - ──█─█──▄─▄──█─█──
