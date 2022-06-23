@@ -2,7 +2,7 @@
 * Interested in Coding.
 
 **[Twitter](https://twitter.com/mo0n_rd)** -
-**[Discord](https://discords.com/bio/p/mo0n)** 
+**[Discord](https://dsc.bio/mo0n)** 
 
 my baby,
 > 🍓❤️ merisna
